@@ -1,0 +1,1 @@
+# allinx-kanga-android
